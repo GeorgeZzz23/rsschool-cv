@@ -203,3 +203,5 @@ ___
 ![Markdown Logo](https://ibsu.edu.ge/wp-content/uploads/2020/02/logo-1.svg)
 ___
 
+## English: 
+>I have been speaking to American, British people and other foreigners in English since I was 12 years old, studied English at school for 7 years, I received a c1 level grade after completing a toefl official test in the International Black Sea University upon entering the university in 2018,  where I have just recently completed my third year in a faculty where teaching is conducted in english, I have taught English language to adults at an academy in Tbilisi for over a year as my first job
